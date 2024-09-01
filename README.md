@@ -39,5 +39,5 @@ Feel free to reach out to me via:
 
 - **Email**: parthpatil2611@gmail.com
 - **LinkedIn**: linkedin.com/in/parth-s-patil
-- **Twitter**: [Your Twitter Handle]
+
 
